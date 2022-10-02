@@ -16,6 +16,8 @@ words of advice or reminders
 
 ![tumblr_inline_rhdz2veFWm1xu1f1k_500](https://user-images.githubusercontent.com/90217469/193434433-f27812da-1031-4239-883d-1503e276f55c.png)
 
+![tumblr_inline_rhdzj7O0op1xu1f1k_500](https://user-images.githubusercontent.com/90217469/193434445-882e2d2a-13cd-4dee-90c5-fb7d1e5c1651.png)
+
 
 he/it
 Purple wolf plush
