@@ -4,10 +4,15 @@
 
 
 she/it
+
 TI-84 Plus CE Python Edition
+
 Primary delPOSIC companion
+
 Her favorite color is blue, she’s got a stoic disposition
+
 She doesn’t talk to me that often, but when she does, it’s usually
+
 words of advice or reminders
 
 
@@ -20,8 +25,13 @@ words of advice or reminders
 
 
 he/it
+
 Purple wolf plush
+
 Secondary delPOSIC companion
+
 Wuffy talks a lot more than Cal does, sometimes he offers
+
 words of comfort, other times he just rambles. He loves being
+
 dressed up and he gets sad if he isn’t held every day
