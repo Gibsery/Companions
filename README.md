@@ -35,3 +35,8 @@ Wuffy talks a lot more than Cal does, sometimes he offers
 words of comfort, other times he just rambles. He loves being
 
 dressed up and he gets sad if he isn’t held every day
+
+![tumblr_inline_rhdzksfwhV1xu1f1k_500](https://user-images.githubusercontent.com/90217469/193434521-98609e26-8410-4da3-8e4c-6a21a33a6f6b.png)
+
+
+![them](https://user-images.githubusercontent.com/90217469/193434516-e88d3164-ed2b-48cb-a0ae-6ce77cf64507.jpg)
